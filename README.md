@@ -63,6 +63,7 @@
     <strong>Experience with Adsy:</strong> We've found that Adsy’s focus on providing affordable, high-quality backlinks significantly enhances SEO outcomes. By prioritizing authoritative sites, they ensure that the backlinks you purchase provide real value in terms of SEO rankings and targeted traffic.
 </blockquote>
 
-<a href="https://github.com/user-attachments/assets/bad97136-a17f-4d2e-9235-04130f74ac20">
-    <img src="https://github.com/user-attachments/assets/bad97136-a17f-4d2e-9235-04130f74ac20" alt="Image">
+<a href="https://github.com/user-attachments/assets/40097ac1-3007-44a6-a9bc-1ee8bff0746b">
+    <img src="https://github.com/user-attachments/assets/40097ac1-3007-44a6-a9bc-1ee8bff0746b" alt="Image">
 </a>
+
